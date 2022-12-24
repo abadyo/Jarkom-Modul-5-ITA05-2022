@@ -8,4 +8,4 @@
 | Abadila Barasmara Bias Dewandra | 5027201052 |
 | Fadly Rachman Drajad Juliantono | 5027201038 |
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fknowyourmeme.com%2Fmemes%2Famong-us-twerk&psig=AOvVaw3XDHFep4D4qhteCaI6tzDw&ust=1671960874757000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCKjW0eL5kfwCFQAAAAAdAAAAABAa)
+![](![image](https://user-images.githubusercontent.com/90241747/209430055-f9f87070-f074-4a0e-97db-9c99b1ae7914.png))
